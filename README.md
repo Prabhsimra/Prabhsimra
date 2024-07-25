@@ -18,6 +18,16 @@ At 9.30 sir Dr. Pyare lal come to the auditorium.He tell many important thinks o
 Today is full of fun . Beacause today our class start at 11.00 am of codegne. In which sir old us to make docs file. after that at1.30 our quize starts of general knowlage in which our group was B and we got 23 point and our position was 4th.and our second period was also quize .That quize was of english in which we got first position so my day was full of fun
 ## Experience of 17-7-24
 Today our class's day. our first was of math in which learnt integration of 12 class . This class of 1.3o hour. After that our class was of UHV in which we leart about human being. After that there was a paper english. After that we join code gne . this is my all day in GNDEC.
+**date=18-7-24**
+Our daily schedule was sent by the teachers which was about a hall event, but it was in the afternoon. I went towards the hall but I checked my phone and our schedule got changed. So, I went to classes according to the new schedule. And it was glad to know that it was a quiz competition at class level on aptitude. The quiz was really great and fun. I was consists of many sports related, author names related and a lot more. After that, there was a quiz based on English knowledge which was beyond my knowledge, which is why I was not able to participate properly but I enjoyed.
+
+DAY 6
+
+Today, there was one maths class and one UHV class. So, I woke up early as usual and went to college. The first class, which was of maths, was taken by Sanchit sir, in the seminar hall. The seminar hall was well organised room and had good and comfortable furniture for the students. Sir taught us about integration. First, we recalled about basics of it and then practiced some questions on variuos types of integrations.
+**DAY 7**
+Then, our first lecture of UHV (Universal Human Values), taken by Rishi Kapoor sir, assistent professor. He introduced this subject first that what is UHV and how it is important. Then, He started the first topic which was “Human values/ Education/ Professional ethics. Then, He briefed us about how to answer a question of 10-15 marks. He also taught us “Understanding tha Harmony in family” and also about “Aspiration”. Then, there was a briefing class of Hardeep sir. After attending it, I went home.
+
+
 ## My certificate of excel
 
 ![20240720_172044](https://github.com/user-attachments/assets/b73741ba-6d37-4905-97ef-ef437ff040c2)
